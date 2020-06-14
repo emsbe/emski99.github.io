@@ -17,3 +17,5 @@ Many people in the Harry Potter series think she is a strange girl. This has led
 > things we lose have a way of coming back to us
 > in the end.
 > If not always in the ways we expect.
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/8/81/Evanna_Lynch_acrylic_ink.jpg/800px-Evanna_Lynch_acrylic_ink.jpg"/>
